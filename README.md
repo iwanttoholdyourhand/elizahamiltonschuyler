@@ -1,4 +1,5 @@
 
+
 ) readme !
 hello this is my read me ! in here you´ll find my fandoms , pronouns , and more things i cannot remember at this moment
 wipwipwip
@@ -7,3 +8,4 @@ i will hide you if you  are making me or oomf uncomfortable , again , im sorry ,
 im always free to c+h , so no need to ask even if my name doesnt say it ( unless i specify , then please dont , thank you ! )
 " living in a home in the heart of the country "
 
+<img width="106" height="18" alt="54" src="https://github.com/user-attachments/assets/7317fce7-cca9-4c70-b4fa-8ff6335a41da" />
