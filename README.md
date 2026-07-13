@@ -1,4 +1,4 @@
-<img width="509" height="70" alt="Screenshot 2026-07-13 12 29 16 PM" src="https://github.com/user-attachments/assets/e3e9d8ee-4b8e-4c97-a763-5e775db9c079" />
+<img width="50" height="30" alt="Screenshot 2026-07-13 12 29 16 PM" src="https://github.com/user-attachments/assets/e3e9d8ee-4b8e-4c97-a763-5e775db9c079" />
 ) readme !
 hello this is my read me ! in here you´ll find my fandoms , pronouns , and more things i cannot remember at this moment
 wipwipwip
