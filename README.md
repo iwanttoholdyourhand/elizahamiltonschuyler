@@ -1,6 +1,6 @@
 
+<img width="1179" height="144" alt="23a2ddfb" src="https://github.com/user-attachments/assets/20ba18a1-d42a-43ce-9530-e7da6e3e34d4" />
 
-) readme !
 hello this is my read me ! in here you´ll find my fandoms , pronouns , and more things i cannot remember at this moment
 wipwipwip
 im okay with you fulling covering (or just covering in general)my pony ! but if you cover one on my friends that dont like to be covered , i will move , sorry ! 😓
