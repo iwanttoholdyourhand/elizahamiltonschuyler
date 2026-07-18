@@ -3,12 +3,12 @@
 
 
 
+<img width="80" height="80" alt="tumblr_dc7a1b3373ba6e20f795c0d8b2542fd3_7f8b0fd2_100" src="https://github.com/user-attachments/assets/1b953a5c-8016-4bed-b29e-79006178ccc9" />
 
-<img width="720" height="500" alt="669488300900749228" src="https://github.com/user-attachments/assets/781c9451-c277-424d-8642-87cb470578fa" />
 
 hello this is my read me ! in here you´ll find my fandoms , pronouns , and more things i cannot remember at this moment
 
-<img width="720" height="500" alt="669488300900749228" src="https://github.com/user-attachments/assets/781c9451-c277-424d-8642-87cb470578fa" />
+
 
 ### About Ponytown ! ( what will get you hidden and such )
 #### wip !!
