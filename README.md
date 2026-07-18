@@ -4,11 +4,11 @@
 
 
 
-<img width="720" height="718" alt="669488300900749228" src="https://github.com/user-attachments/assets/781c9451-c277-424d-8642-87cb470578fa" />
+<img width="720" height="500" alt="669488300900749228" src="https://github.com/user-attachments/assets/781c9451-c277-424d-8642-87cb470578fa" />
 
 hello this is my read me ! in here you´ll find my fandoms , pronouns , and more things i cannot remember at this moment
 
-<img width="720" height="718" alt="669488300900749228" src="https://github.com/user-attachments/assets/781c9451-c277-424d-8642-87cb470578fa" />
+<img width="720" height="500" alt="669488300900749228" src="https://github.com/user-attachments/assets/781c9451-c277-424d-8642-87cb470578fa" />
 
 ### About Ponytown ! ( what will get you hidden and such )
 #### wip !!
