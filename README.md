@@ -17,7 +17,7 @@ hello this is my read me ! in here you´ll find my fandoms , pronouns , and more
 🍎 ) Asking any private info
 🍎 ) Having a pony that goes against my DNIs 
 nothing else that i can think of !
-<img width="99" height="54" alt="stamp28" src="https://github.com/user-attachments/assets/d4eb7625-fc05-4c72-8223-c063b0640972" />
+<img width="99" height="54" alt="stamp28" src="https://github.com/user-attachments/assets/d4eb7625-fc05-4c72-8223-c063b0640972" 
 
 
 
