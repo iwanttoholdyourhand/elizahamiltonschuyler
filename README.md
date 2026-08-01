@@ -13,6 +13,10 @@ hello this is my read me ! in here you´ll find my fandoms , pronouns , and more
 
 
 ### About Ponytown ! ( what will get you hidden and such )
+🍎 ) Any form of NSFW ( minus cussing ) I don't usually hide people that say NSFW , mostly just people with NSFW ponies
+🍎 ) Asking any private info
+🍎 ) Having a pony that goes against my DNIs 
+nothing else that i can think of !
 <img width="99" height="54" alt="stamp28" src="https://github.com/user-attachments/assets/d4eb7625-fc05-4c72-8223-c063b0640972" />
 <img width="99" height="56" alt="54" src="https://github.com/user-attachments/assets/7317fce7-cca9-4c70-b4fa-8ff6335a41da" /
 
