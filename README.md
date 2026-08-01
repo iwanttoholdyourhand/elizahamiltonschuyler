@@ -18,7 +18,11 @@ hello this is my read me ! in here you´ll find my fandoms , pronouns , and more
 🍎 ) Asking any private info
 
 🍎 ) Having a pony that goes against my DNIs 
+
 nothing else that i can think of !
+
+
+hey this is still in wip ,, okay
 
 
 
