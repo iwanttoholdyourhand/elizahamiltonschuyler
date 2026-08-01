@@ -8,8 +8,7 @@
 
 
 
-hello this is my read me ! in here you´ll find my fandoms , pronouns , and more things i cannot remember at this moment
-
+hihihihi this is  a wip
 
 
 ### About Ponytown ! ( what will get you hidden and such )
@@ -27,3 +26,4 @@ hey this is still in wip ,, okay
 
 
 
+<img width="612" height="245" alt="4011087181790580 (1)" src="https://github.com/user-attachments/assets/3e5239f7-09c7-40c5-a2fc-ac1c83aae6a2" />
