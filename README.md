@@ -2,15 +2,9 @@
 
 
 
-### About Ponytown ! ( what will get you hidden and such )
-🍎 ) Any form of NSFW ( minus cussing ) I don't usually hide people that say NSFW , mostly just people with NSFW ponies
-
-🍎 ) Asking any private info
-
-🍎 ) Having a pony that goes against my DNIs 
-
-nothing else that i can think of !
-
+### Info About Me !
+hi hello , i'm amber !! you'll probably see me get called , which thanks to my lovely friends for coming up with that nickname ! anyways , just be reminded that i am very sensitive !
+ like OVERLY sensitive , so just be cautious with jokes of any sort please ! ( i feel like such a chud for this )
 
 hey this is still in wip ,, okay
 
