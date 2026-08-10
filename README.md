@@ -5,7 +5,7 @@
 
 
 ### Info About Me !
-hi hello , i'm amber !! you'll probably see me get called , which thanks to my lovely friends for coming up with that nickname ! i go my she / they , i love the colour light mint , and i love history ! anyways , just be reminded that i am very sensitive !
+hi hello , i'm amber !! you'll probably see me get called , which thanks to my lovely friends for coming up with that nickname ! i go by she / they , i love the colour light mint , and i love history ! anyways , just be reminded that i am very sensitive !
  like OVERLY sensitive , so just be cautious with jokes of any sort please ! ( i feel like such a chud for this , yes i have actually cried because of plenty jokes , #imaloser )
 
 <img width="509" height="67" alt="591238257378398376" src="https://github.com/user-attachments/assets/3d2f529d-36d7-457f-8028-28a924bf6126" />
