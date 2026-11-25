@@ -1,3 +1,5 @@
+<img width="1280" height="121" alt="Untitled4854-20250612211027" src="https://github.com/user-attachments/assets/1982e2d2-5104-4f8d-a83a-2dcd5a4e9985" />
+
 <img width="1080" height="40" alt="oxaiqo" src="https://github.com/user-attachments/assets/da831051-7720-4b23-b993-15005a3dd6ae" />
 
 <img width="733" height="245" alt="﹔⇆﹒`🐻`ꜛ﹒banner" src="https://github.com/user-attachments/assets/3be7fdd3-fe26-4b9f-a4e9-d04b5e46b513" />
