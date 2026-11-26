@@ -24,7 +24,10 @@
 
 [strawpage ૮꒰ •̯́ ༝ •̯̀˵꒱ა  ](https://shesarealnowhereperson.straw.page/)
 
-[atabook ໒꒰˵- ˕ -˵꒱১  ](https://psiloveyou.atabook.org/)
+[atabook ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა  ](https://psiloveyou.atabook.org/)
 
 
+<img width="200" height="112" alt="bunny-sleepy" src="https://github.com/user-attachments/assets/52234860-88ac-4a02-9edc-b9997b4e937e" />
 
+  
+  
