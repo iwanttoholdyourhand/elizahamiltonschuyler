@@ -20,5 +20,6 @@
 
 <img width="1080" height="40" alt="oxaiqo" src="https://github.com/user-attachments/assets/5cfd1ed9-0f35-4161-ae62-13a23ee6cb87" />
 
+[strawpage ૮꒰ •̯́ ༝ •̯̀˵꒱ა  ](https://shesarealnowhereperson.straw.page/)
 
 
